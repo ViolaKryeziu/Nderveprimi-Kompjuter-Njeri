@@ -1,0 +1,1 @@
+# Nderveprimi-Kompjuter-Njeri
